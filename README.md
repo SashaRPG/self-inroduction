@@ -1,2 +1,2 @@
-# self-inroduction
+# self-introduction
 Self-introduction for RS School
